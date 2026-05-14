@@ -14,3 +14,6 @@ Github gives me a list of ideas so here we go:
 * 📫How to reach me: mostly Discord, but I also have an email if you really think you need it. That should also be around here somewhere.
 * 😄Pronouns: doesn't matter to me, but I am biologically a he/him. I've even been called a she as a joke.
 * ⚡Fun fact: did you know pigeons lactate? Not completely sure why that's my favorite fact but sure. Seals also lactate, it just goes all over their skin.
+
+## YouTube
+I am a content creator. I have no real goals for my channel other than to express myself, entertain others, and maybe make a buck or two on the side. Throughout my journey on YouTube, I will eventually get better at gaming, recording, and editing. I enjoy doing this, and I hope you enjoy watching.
